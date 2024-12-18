@@ -1,6 +1,6 @@
 ## Salutations!
 
-I am nityastallo, or just nitro for short. I am a cybersecurity professional with many, many, many and many years of experience...
+I am nityastallo, or just nitro for short. I am a cybersecurity professional with many years of experience...
 
 I write luxurious and exquisite code which is capable of making the rsp negative and much more! 
 
